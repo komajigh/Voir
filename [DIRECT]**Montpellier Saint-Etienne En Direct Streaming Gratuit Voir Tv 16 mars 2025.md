@@ -1,19 +1,28 @@
-Montpellier face à Saint-Étienne commence le 16 mars 2025 à 16:15 UTC au Stade de la Mosson stade, Montpellier ville de, France. C'est un match de Ligue 1.
-1 rencontres cette saison entre Montpellier et Saint-Étienne. A ce jour, Montpellier est classé 18e, tandis que Saint-Étienne est classé 17e. Comparez les meilleurs joueurs de chaque équipe ? Le systéme de notation Sofascore's assigne des notes spécific pour chaque joueur en fonction de plusieurs facteurs.
-Sur le live Sofascore, vous trouverez les face à face entre Montpellier et Saint-Étienne. Sofascore est la meilleure façon de suivre ce match avec plein de fonctionnalités. Par exemple vous pouvez:
-Sachez qui a marqué dans le match en direct
-Obtenez les informations sur l'équipe dominant le match en utilisant Attack Momentum
-Suivez les statistique détaillées comme la possession, les tirs, les corners, les grosses occasions, les cartons, les passes clés, les duels et plus
-Suivez tous les matchs à domicile et à l'éxtérieur en Ligue 1
-Regardez le favoris selon la communauté Sofascore.
-Toutes ces fonctionnalités peuvent vous aider à faire votre prédiction entre Montpellier et Saint-Étienne. Bien que Sofascore ne vous permette pas de parier directement, vous y trouverez les meilleures cotes et sites de paris sportifs. Les cotes en direct de U-TV sont consultables sur la section live de Football .
-Où regarder Montpellier vs Saint-Étienne ? Dans la section TV, vous trouverez la liste des chaînes diffusant Montpellier – Saint-Étienne en direct. Vous pouvez également voir le match via nos partenaires paris sportifs ou via les liens légaux sur Sofascore.
-Détails de l'événement:
-NOM: Montpellier - Saint-Étienne
-DATE: 16 mars 2025
-TEMPS: 16:15 UTC
-STADE: Stade de la Mosson, Montpellier, France
-Plus d'informations:
-Montpellier scores en direct , calendrier et résultats
-Saint-Étienne scores en direct , calendrier et résultats
-Sofascore résultats en direct est disponible pour iPhone, iPad, Android (sur le Google Play Store) et pour Window phone. Vous pouvez nous retrouver dans différentes langues sur ces plateformes sous le même nom de "Sofascore". Installez l'application Sofascore et suivez Montpellier Saint-Étienne en direct sur votre mobile!
+French Ligue 1 📺📱👉◄◄🔴https://t.co/hAhsGnd1jh
+
+French Ligue 1 📺📱👉◄◄🔴https://t.co/hAhsGnd1jh
+
+viral Video 📺📱👉◄◄🔴 https://tinyurl.com/26xutdrp
+
+viral Video 📺📱👉◄◄🔴 https://tinyurl.com/26xutdrp
+
+
+10-time French champion Saint-Etienne opposes government's plan to disband fan groups
+Saint-Etienne's fans light flares before the French League One soccer...
+Saint-Etienne's fans light flares before the French League One soccer match between Saint-Etienne and Paris Saint-Germain, at the Geoffroy Guichard stadium, in Saint-Etienne, central France, on Dec. 15, 2019. Credit: AP/Laurent Cipriani
+
+By The Associated Press
+March 16, 2025 11:41 am
+Share
+SAINT-ETIENNE, France — Ten-time French champion Saint-Etienne said Sunday it is opposing a proposal from the French government to disband its two main groups of supporters.
+
+The Magic Fans and the Green Angels, which were created in the early 1990s, have complained that the government's plans are politically driven and said they won't help fight hooliganism in stadiums. The club sided with its fans and said it opposes the government's planned measure, "deeming it disproportionate and ineffective in the fight against violence and discrimination in stadiums.
+
+“AS Saint-Étienne remains firmly committed to combating all forms of violence and discrimination,” Saint-Etienne said. “The club has always acted to identify and punish the perpetrators of reprehensible acts, and will continue to do so.”
+
+A former French league powerhouse, Saint-Etienne dominated French soccer during the 1960s and ’70s.
+
+Saint-Etienne supporters were banned by French authorities from traveling to Montpellier for Sunday’s Ligue 1 game between the two relegation-threatened clubs because of a high risk of violence. To justify the move, the French authorities said Saint-Etienne’s travels are often marred by “public order disturbances due to the violent behavior of certain supporters or individuals claiming to be supporters of this team,” and noted that some Montpellier fans are also prone to violence.
+
+In an order published Wednesday, France’s interior ministry said there is a “real and serious risk of confrontation” between the rival fans. The ministry cited an incident in November last year before a game between the two clubs in Saint-Etienne. A large-scale brawl took place during which 260 Montpellier fans, some of them equipped with weapons, clashed in the streets with 300 to 400 Saint-Etienne supporters.
+
